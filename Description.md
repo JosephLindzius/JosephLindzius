@@ -1,3 +1,3 @@
 # Joseph Lindzius
 
-![Joseph Lindzius](/download.png "Joseph Lindzius") 
+![Joseph Lindzius](/JJFL.png "Joseph Lindzius") 
