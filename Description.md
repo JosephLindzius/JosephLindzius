@@ -32,10 +32,10 @@
 
 ### Funny Story
 
-When I was a bartender for the first time in Belgium instead of hearing correctly "pompelmoessap" I would constantly hear "bruis water" for some odd reason  I had alot of strange looks and extra opened bottles of grapefruit juice.
+When I was a bartender for the first time in Belgium instead of hearing correctly "bruis water" I would constantly hear "pompelmoessap" for some odd reason  I had alot of strange looks and extra opened bottles of grapefruit juice.
 
 #### Gênant
 
 
-[Previous]() ||[JOSEPH LINDZIUS] (#)|| [Next]()          
+[Previous]() || [JOSEPH LINDZIUS](#) || [Next]()          
 
